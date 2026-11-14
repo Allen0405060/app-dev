@@ -27,8 +27,3 @@ Two terminally ill men, **Edward Cole** (a billionaire) and **Carter Chambers** 
 | Carter Chambers | Morgan Freeman | Mechanic and history lover |
 
 > "Put your favorite quote from the movie here."
-
-## My Rating ##
-⭐⭐⭐⭐⭐ **10/10**
-
-`Status: Rewatchable` 🎬
