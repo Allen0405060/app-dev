@@ -1,4 +1,4 @@
-![alt text](https://resizing.flixster.com/-XZAfHZM39UwaGJIFWKAE8fS0ak=/v3/t/assets/p172507_p_v10_az.jpg)
+![alt text](https://spoilertown.com/wp-content/uploads/2024/09/bucket-list-2007.webp)
 ## My Favorite Movie: *The Bucket List* (2007)
 
 **Genre:** Comedy-Drama / Adventure
